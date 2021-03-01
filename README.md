@@ -3,7 +3,9 @@
 die würde des menschen ist unantastbar | deutschland ist ein demokratischer sozialer bundesstaat | alle deutschen habe das recht zum widerstand | das leben ist bewegung und kontroversen
 
 
-## Manifest  
+## Manifest
+
+Global denken und regional handeln! Im Sinne der Menschlichkeit! Zum Wohle der Anderen!
 
 Wir unterstützen jedes Bestreben die freiheitlich-demokratische Grundordnung für jeden Menschen in Deutschland und alle Freunde außerhalb zu sichern.
 
