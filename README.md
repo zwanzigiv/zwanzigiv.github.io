@@ -7,7 +7,7 @@ die würde des menschen ist unantastbar | deutschland ist ein demokratischer soz
 
 Global denken und regional handeln! Im Sinne der Menschlichkeit! Zum Wohle der Anderen! Gemeinsam und kooperativ schaffen wir bessere Chancen für Verschiedene! Kooperation lebt von Individualität, von der Freiheit, Dinge anders zu machen und in einem Konsens über die freiheitlich-demokratische Grundordnung innovativ zu entwickeln. 
 
-Im Vertrauen dadrauf, Unterstützung durch den Anderen und eine schlanke effiziente staatstragende Organisation im Sinne der Macht der Vielen unvoreingenommen sowie kostenneutral zu erhalten. 
+Im Vertrauen darauf, Unterstützung durch den Anderen und eine schlanke effiziente staatstragende Organisation im Sinne der Macht der Vielen unvoreingenommen sowie kostenneutral zu erhalten. 
 
 Der Mensch und dessen Würde im Raum der Vielen steht im Vordergrund des Denkens, daraus resultierend des Handelns.
 
