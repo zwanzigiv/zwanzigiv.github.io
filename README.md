@@ -5,8 +5,7 @@ die würde des menschen ist unantastbar | deutschland ist ein demokratischer soz
 
 ## Manifest
 
-Global denken und regional handeln! Im Sinne der Menschlichkeit! Zum Wohle der Anderen! Gemeinsam und kooperativ schaffen wir bessere Chancen
-für Verschiedene! Kooperation lebt von Individualität, von der Freiheit, Dinge anders zu machen und in einem Konsens über die freiheitlich-demokratische Grundordnung innovativ zu entwickeln. Im Vertrauen dadrauf, Unterstüzung durch den Anderen und eine schlanke effiziente staatstragende Oranisation im Sinne der Macht der Vielen unvoreingenommen kostenneutral zu erhalten.  
+Global denken und regional handeln! Im Sinne der Menschlichkeit! Zum Wohle der Anderen! Gemeinsam und kooperativ schaffen wir bessere Chancen für Verschiedene! Kooperation lebt von Individualität, von der Freiheit, Dinge anders zu machen und in einem Konsens über die freiheitlich-demokratische Grundordnung innovativ zu entwickeln. Im Vertrauen dadrauf, Unterstützung durch den Anderen und eine schlanke effiziente staatstragende Organisation im Sinne der Macht der Vielen unvoreingenommen sowie kostenneutral zu erhalten. Der Mensch und dessen Würde im Raum der Vielen steht im Vordergund des Denkens, daraus resultierend des Handelns.  
 
 Wir unterstützen jedes Bestreben die freiheitlich-demokratische Grundordnung für jeden Menschen in Deutschland und alle Freunde außerhalb zu sichern.
 
