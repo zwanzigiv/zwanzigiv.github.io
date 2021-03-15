@@ -1,4 +1,4 @@
-# Artikel 20 (4) GG - Pflicht zum digitalem Widerstand und Information ist die wichtigste Intervention des 21. Jahrhunderts.
+# Artikel 20 (4) GG - Pflicht zum digitalem Widerstand! Unsere Information ist die entscheidende Intervention des 21. Jahrhunderts.
 
 die würde des menschen ist unantastbar | deutschland ist ein demokratischer sozialer bundesstaat | alle deutschen habe das recht zum widerstand | das leben ist bewegung und kontroversen
 
